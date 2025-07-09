@@ -10,4 +10,4 @@
 
 在这些平台上，用户可以享受高清无广告的流畅观看体验，平台定期更新，提供最新最热的影片，确保每个观众都能找到符合自己需求的内容。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/hay20250709/hay19 ）</span>
